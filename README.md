@@ -7,5 +7,5 @@ Arabic is the main language and other languages are needed for translation and w
 people too in Learning the Quran and Sunna in the five Islamic ways where all professionals and programmers might join and the AI built in 
 will have subscription I'll do the advertising and shares are shared with believers around the world equally at all times and we want men and women professionals and Women Programmers and the App to be Deployed in Owned Hosting Servers in Mecca and a huge branch in Texas, 
 Lebanon, Syria, Jordan, Palestine, Sudan and Gulf Countries and Egypt and shares are shared by every believer first before being Global. The App is for the hurry 
-Consistantally Upgrading no need the whole world is welcomed to join
+Consistantally Upgrading no need the whole world is welcomed to join the revenue sharing continues forever and continues till all believers have their debts paid and have full accessibility to do 5 Hag
 
