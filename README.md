@@ -5,7 +5,7 @@ thinker in the 5 Islamic Schools to relate the human beliefs with true Islamic B
 platform where men and women communicate in seperate sections and an Islamic Courses Platform where beneficial Sciences are shared where 
 Arabic is the main language and other languages are needed for translation and with an Arabic Islamic AI Educator where the AI helps 
 people too in Learning the Quran and Sunna in the five Islamic ways where all professionals and programmers might join and the AI built in 
-will have subscription I'll do the advertising and shares are owned by believers around the world equally at all times and we want men and 
-women professionals and Women Programmers and the App to be Deployed in Owned Hosting Servers in Mecca and a huge branch in Texas, 
-Lebanon, Syria, Jordan, Palestine, Sudan and Gulf Countries and Egypt by every believer first before being Global. The App is for the hurry 
+will have subscription I'll do the advertising and shares are shared with believers around the world equally at all times and we want men and women professionals and Women Programmers and the App to be Deployed in Owned Hosting Servers in Mecca and a huge branch in Texas, 
+Lebanon, Syria, Jordan, Palestine, Sudan and Gulf Countries and Egypt and shares are shared by every believer first before being Global. The App is for the hurry 
 Consistantally Upgrading no need the whole world is welcomed to join
+
